@@ -4,3 +4,4 @@ Bubbles is known for his hoarse Maritimer English, sensitive nature, pearl snap 
 * Googly eyes
 * Sharpest mind in park
 * Loves kitties
+> Man, I hope it's not a fucking samsquanch!
