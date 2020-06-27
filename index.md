@@ -5,3 +5,5 @@ Bubbles is known for his hoarse Maritimer English, sensitive nature, pearl snap 
 * Sharpest mind in park
 * Loves kitties
 > Man, I hope it's not a fucking samsquanch!
+
+<img src="https://en.wikipedia.org/wiki/File:Mike_Smith,_Bubbles,_April_2009.jpg"/>
